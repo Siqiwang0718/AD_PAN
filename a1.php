@@ -1,4 +1,0 @@
-wangzuan
-is
-so
-powerful
